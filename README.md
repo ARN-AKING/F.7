@@ -1,6 +1,6 @@
 # AKING
 PAID TOOLS APPROVAL
-<b></b> </br> <br>[![Github](https://img.shields.io/badge/Github-Amir-AKING-dimgray?style=flat-square&logo=github)](https://github.com/RayeesAmirNafas01)<br> [![Facebook](https://img.shields.io/badge/Facebook-Amir-AKING-blue?style=flat-square&logo=facebook)](https://www.facebook.com/RaYees.AmIr42011)<br> [![Whatsapp](https://img.shields.io/badge/Whatsapp-AKING-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+93767207059)
+<b></b> </br> <br>[![Github](https://img.shields.io/badge/Github-Amir-AKING-dimgray?style=flat-square&logo=github)](https://github.com/RayeesAmirNafas01)<br> [![Facebook](https://img.shields.io/badge/Facebook-Amir-AKING-blue?style=flat-square&logo=facebook)](https://www.facebook.com/RaYees.AmIr42011)<br> [![Whatsapp](https://img.shields.io/badge/Whatsapp-AKING-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+93744412539)
 
 
 
@@ -28,4 +28,4 @@ PAID TOOLS APPROVAL
 
 
  ___This Tools is Paid Message Whatsapp___</br>
- [![Whatsapp](https://img.shields.io/badge/Whatsapp-AKING-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+93767207059)
+ [![Whatsapp](https://img.shields.io/badge/Whatsapp-AKING-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+93744412539)
